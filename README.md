@@ -22,7 +22,6 @@ When you make a mistake or fall short of a goal, you haven’t failed; you’ve 
 3. Stop seeking approval.
 
 ![change your Mind](https://images.twinkl.co.uk/tw1n/image/private/t_630/image_repo/05/4b/t-c-1623-developing-growth-mindset-display-pack_ver_2.jpg)
-jhh
 
 ![you can read about growth mindset studies](https://www.mindsetworks.com/science/)
 
