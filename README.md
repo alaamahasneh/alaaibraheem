@@ -25,7 +25,7 @@ When you make a mistake or fall short of a goal, you haven’t failed; you’ve 
 
 [you can read about growth mindset studies](https://www.mindsetworks.com/science/) 
 
-## Now, What do you think about you?
+## Now, you should be think about
 - [x] I will keeping try alwayes   
 - [ ] NO,  i can't do it
 
