@@ -1,6 +1,4 @@
-My Name is Ala'a Mahasneh 
-22 years old
-Civil Engineering 
+**My Name is Ala'a Mahasneh ,22 years old,Civil Engineering** 
 ## Growth-Mindset
 
 In this Website you can learn about  **Growth Mindset** , The most characteristics and qualities .
@@ -13,7 +11,7 @@ Growth Mindset believe that one can always improve, catch up, or even surpass ot
 > It’s not that I’m so smart, it’s just that I stay with problems longer. – Albert Einstein
 
 
-## To *keep* yourself in a **Growth Mindset** you should read this: :smile:
+## To *keep* yourself in a **Growth Mindset** you should read this:
 
 1. Follow the research on brain plasticity.
 The brain isn’t fixed; the mind shouldn’t be either.
